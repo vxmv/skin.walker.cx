@@ -1,3 +1,3 @@
 # GAY SEX IS A SIN
-[Cvpp8VhS4V04kC4/GZwHZjOcz3RF4ltPlzm7oolNFaobED2Rx4RGrWfEMABlQH5dZc5ErFSsalqNFcqDfc+LTZYDBrTsq2LnieX0gTUWlanTGZz5+beEfwuHyi18xbVzzPIeAhh6ZYWFh59YMqOLeUgbl/aCamWO8QMelHISQP6t1+ckA5Sh7Y/wBpgO0vsySSmcL0eAnQ4H2ZmSYf1b/zFbhE6skkmNhqcrid/wA8pJIfS69PUuyf3FH/AGfgIUbSSTVzgVIo8kkADWgk4zMkC+nMPHKUkkCNU+EOJiSAircIrVkkgpp+1/YbznE9n+2eskkCvpru2fa8/wAZtuzP3flJJNfhRr+zf/0P0M6Khv1kkkhSn+MPS3kkiOeh5JJIjf/Z](https://i.kym-cdn.com/photos/images/original/002/444/001/a3e.jpg)https://i.kym-cdn.com/photos/images/original/002/444/001/a3e.jpg
+https://media.discordapp.net/attachments/474295318515810307/929798625222090772/image0-30.gif?ex=65ad5d73&is=659ae873&hm=bfaa0420ee727d3a9d72a18e786c6596d42b0123ef7038dc65231967f67be4f9&
 FACTS
